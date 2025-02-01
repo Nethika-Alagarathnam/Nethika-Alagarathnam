@@ -6,7 +6,7 @@ I'm Nethika Alagarathnam, passionate about web development with a focus on front
 
 - 🔗 LinkedIn: Connect with me on [LinkedIn](https://www.linkedin.com/in/nethika-alagarathnam-69a616220) for professional networking and discussions.
 
-- 📧 Reach Out: Feel free to drop me an email at nethikaa79@gmail.com. 
+- 📧 Reach Out: Feel free to drop me an email at anethikaa98@gmail.com. 
 
 - 😄 They say I possess extroverted qualities, have strong leadership skills, and I'm always ready to adapt to the latest techy trends! Just call me Nethika!
 
